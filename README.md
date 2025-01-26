@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Faneillo
 - 👀 I’m interested in ⚽️&🏎️&💻&🎮&📷
-- 🌱 I’m currently learning IGCSE in Shanghai,🇨🇳
+- 🌱 I’m currently learning IGCSE at Ulink College Shanghai
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me fanyancheng36@gmail.com
 <!---
